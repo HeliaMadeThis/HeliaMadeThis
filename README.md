@@ -2,7 +2,7 @@
 - 👀 I’m interested in interior design, buildings, books, serieses, tea and New York city of course.
 - 🌱 I’m currently learning architecture.
 - 💞️ I’m looking to collaborate on architectural projects.
-- 📫 How to reach me? email me helyatabarzadi@gmail.com
+- 📫 How to reach me? email me.
 
 <!---
 HeliaMadeThis/HeliaMadeThis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
