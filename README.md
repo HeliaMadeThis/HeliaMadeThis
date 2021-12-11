@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Helia
-- 👀 I’m interested in interior design, buildings, books, serieses, tea and New York city of course.
+- 👀 I’m interested in interior design, architecture, books, serieses, tea and New York city of course.
 - 🌱 I’m currently learning architecture.
 - 💞️ I’m looking to collaborate on architectural projects.
 - 📫 How to reach me? email me.
